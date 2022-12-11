@@ -1,1 +1,1 @@
-![mah](https://www.google.com/url?sa=i&url=https%3A%2F%2Fru.wikipedia.org%2Fwiki%2F%25D0%259B%25D0%25B5%25D1%2581%25D0%25BD%25D0%25BE%25D0%25B9_%25D0%25BA%25D0%25BE%25D1%2582&psig=AOvVaw2G_qW_5rp51g1Vs8X4_XKw&ust=1670841336985000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCNCeiZWv8fsCFQAAAAAdAAAAABAE)
+![mah](https://upload.wikimedia.org/wikipedia/commons/0/0e/Felis_silvestris_silvestris.jpg)
